@@ -3,9 +3,8 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=87vasavi&label=Profile%20views&color=0e75b6&style=flat" alt="87vasavi" /> </p>
 
-- 📫 How to reach me **vasavibashaboyna@gmail.com**
+- 📫 How to reach me **vasavibashaboyna@gmail.com / vasavi@iitk.ac.in**
 
-- ⚡ Fun fact **I usually hum loudly**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
